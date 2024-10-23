@@ -1,1 +1,0 @@
-# para-um-anao-toda-adaga-uma-espada
